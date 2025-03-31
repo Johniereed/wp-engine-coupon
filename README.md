@@ -71,11 +71,11 @@ Click the button below to claim your discount now!
 
 ## Get a 45% Off Coupon on WP Engine Core Plans
 
-Claim a [45% discount](****) on the Core plans with this WP Engine Coupon and save up to $250 on your hosting.
+Claim a [45% discount](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/) on the Core plans with this WP Engine Coupon and save up to $250 on your hosting.
 
 Click the button below.
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdldBNcCVmFXVUhBQQc7wyM8raJ3eBtCrfBFTmDp7xYNTWPI_tppizzjyOA7CI3HCopmGXUmKVV4Hf4Ase7Qzrm9NdH8ikylrMMksgKazPZTZUiO5cWy-qPsWcQwyri9uDmzs9A?key=lV5OD-SUzbBTj1zeHmIOZ8VH)](https://bit.ly/49DTEy6)
+[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdldBNcCVmFXVUhBQQc7wyM8raJ3eBtCrfBFTmDp7xYNTWPI_tppizzjyOA7CI3HCopmGXUmKVV4Hf4Ase7Qzrm9NdH8ikylrMMksgKazPZTZUiO5cWy-qPsWcQwyri9uDmzs9A?key=lV5OD-SUzbBTj1zeHmIOZ8VH)](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/)
 
 With this WP Engine Promo code, you get:
 
@@ -108,7 +108,7 @@ Now [save 30%](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/) on your annual pla
 
 ## WPEngine Coupon Code | Get 20% Off
 
-Grab a [20% discount](https://bit.ly/49DTEy6) with this WPEngine coupon code and save up to **$50** on your annual subscription to WPEngine.
+Grab a [20% discount](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/) with this WPEngine coupon code and save up to **$50** on your annual subscription to WPEngine.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfOZUOKScP7FnxdcpAOVKQ-rHz3nT0uMMIhF9pZyNZkCqi3wuiumhKvupjpiFRt476GLn6OZv0aUuKE-TPWHa_nXzXpvf17u-amvii9g_aknrwy5MbtaSjIYBZcEc7TSPL7atACeQ?key=lV5OD-SUzbBTj1zeHmIOZ8VH)](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/)
 
